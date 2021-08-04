@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HunkMikee
 - 👀 I’m interested in coding and learning about IT
-- 🌱 I’m currently learning IT on my college
+- 🌱 I’m currently learning IT on my university
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me pls contact me on my email:hunkmike16@gmail.com
 
